@@ -1,1 +1,1 @@
-# Curr-culo-Arthur-Morgan
+# Curriculo-Arthur-Morgan
